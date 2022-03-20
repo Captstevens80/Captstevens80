@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Captstevens80
+- 👀 I’m interested in ...electronics as a hobby
+- 🌱 I’m currently learning ...to use a Nanovna
+-- 📫 How to reach me ... captstevens@mailfence.com
+-I am a retired U S Navy Fighter Pilot/Commercial Airline Pilot
